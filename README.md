@@ -1,2 +1,2 @@
 ## PROJECT-M.A.Y-BEE
-<img width="700" height="500" alt="logo-transparent-png" src="https://github.com/user-attachments/assets/eb505437-93f7-4689-b841-ec9e48a25d24" />
+![IMG_20251117_214934_437](https://github.com/user-attachments/assets/3bfd44f7-063e-4576-9763-3c71d3f48c9c)
